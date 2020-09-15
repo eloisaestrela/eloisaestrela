@@ -1,16 +1,20 @@
-### Hi there 👋
+### Hello world! Sou Eloisa 👋
 
-<!--
-**eloisaestrela/eloisaestrela** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+💻 Futura Data Scientist 
 
-Here are some ideas to get you started:
+💗 Apaixonada por pesquisa, cinema, fotografia, filosofia e todos os misterios existentes entre o céu, a terra, a água e o mar.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+📚 Bachael em Ciências e Humanidades, Pós-graduanda em ciência de dados e Gestão de Projetos.
+
+⭐Louca das lista, Chocolatra incurável, Amante da sétima arte e facilmente hipnotizada pela fofura canina
+
+
+ ### Encontre-me por aqui 🌎
+
+👩 https://www.linkedin.com/in/eloisaestrelaoliveira/
+📧 eloisa.estrela@gmail.com
+
+
+🚀 🚀 🚀
+
 -->
