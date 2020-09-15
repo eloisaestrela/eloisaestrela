@@ -1,12 +1,13 @@
 ### Hello world! Sou Eloisa 👋
 
+
 💻 Futura Data Scientist 
 
-💗 Apaixonada por pesquisa, cinema, fotografia, filosofia e todos os misterios existentes entre o céu, a terra, a água e o mar.
+💗 Apaixonada por ciência, pesquisa, cinema, fotografia e tudo que pode sonhar nossa vã filosofia. 
 
-📚 Bachael em Ciências e Humanidades, Pós-graduanda em ciência de dados e Gestão de Projetos.
+📚 Bachael em Ciências e Humanidades, Pós-graduanda em Ciência de Dados e Gestão de Projetos.
 
-⭐Louca das lista, Chocolatra incurável, Amante da sétima arte e facilmente hipnotizada pela fofura canina
+⭐ Louca das listas, chocólatra incurável, amante da sétima arte e facilmente hipnotizada pela fofura canina. 
 
 
  ### Encontre-me por aqui 🌎
