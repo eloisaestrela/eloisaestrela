@@ -14,8 +14,3 @@
 
 👩 https://www.linkedin.com/in/eloisaestrelaoliveira/ 
 📧 eloisa.estrela@gmail.com
-
-
-🚀 🚀 🚀
-
--->
