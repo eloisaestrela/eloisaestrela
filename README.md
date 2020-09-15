@@ -12,7 +12,7 @@
 
  ### Encontre-me por aqui 🌎
 
-👩 https://www.linkedin.com/in/eloisaestrelaoliveira/
+👩 https://www.linkedin.com/in/eloisaestrelaoliveira/ 
 📧 eloisa.estrela@gmail.com
 
 
