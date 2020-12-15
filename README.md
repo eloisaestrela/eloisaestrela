@@ -1,7 +1,7 @@
 ### Hello world! Sou Eloisa 👋
 
 
-💻 Futura Data Scientist 
+💻 Futura Programadora
 
 💗 Apaixonada por ciência, pesquisa, cinema, fotografia e tudo que pode sonhar nossa vã filosofia. 
 
