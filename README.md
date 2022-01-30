@@ -5,7 +5,7 @@
 
 💗 Apaixonada por ciência, pesquisa, cinema, fotografia e tudo que pode sonhar nossa vã filosofia. 
 
-📚 Bachael em Ciências e Humanidades, Pós-graduanda em Ciência de Dados e Gestão de Projetos.
+📚 Bachael em Ciências e Humanidades.
 
 ⭐ Louca das listas, chocólatra incurável, amante da sétima arte e facilmente hipnotizada pela fofura canina. 
 
